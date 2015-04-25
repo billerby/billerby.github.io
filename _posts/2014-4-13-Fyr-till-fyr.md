@@ -4,6 +4,8 @@ title: ""
 published: true
 ---
 
+## Fyr till fyr Bornholm april 2015
+
 Efter att ha läst Joakim Kopkas racerapport om samma lopp (Fyr til Fyr) känns det som om det roligaste redan har sagts. Han utelämnade ju dock en del information om själva loppet och koncentrerade sig på den anmärkningsvärda chockerande starten samt den avslutande ölen. Det här är min historia. Den handlar om jaktinstinkt, om att få upp vittring på danskar samt om att springa fort nog för att bli bjuden på en finöl av arrangörerna :) 
 
 Redan i augusti började det pratas om det här loppet bland mina LR-kamrater. Vad jag har förstått hade Peter Blomqvist fått nys om det och haft det på sin “bucket-list” ett tag. Då jag aldrig varit på Bornholm och distansen (58 km) kändes som en lagom utmaning i början på april var jag inte sen att anmäla mig. Drygt tre veckor före start lyckades jag onödigt nog stuka foten rejält. Dessutom värre än jag någonsin gjort tidigare. Så efter 11 dagars löpstopp och med massa tejpning kunde jag iaf börja springa igen någon dryg vecka före start. 
