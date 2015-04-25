@@ -3,7 +3,7 @@ layout: post
 title: "Skogsmaran tävlingsberättelse"
 published: true
 ---
-
+![Screenshot](/images/skogsmaran-runners.jpg)
 Jag har följt upprustningen av vildmarksleden under flera år. Det har lagts ner mycket ideellt arbete av de lokala klubbarna med Hindås Skidklubb i spetsen med att dränera, bygga nya spänger och markera leden under de senaste två åren. Att nu (när EU-pengarna är slut) få springa hela sträckan på tävling är något jag verkligen sett fram emot.
 
 Skogsmaran fanns på tidigt 70-tal (vet inte hur många år den gick) och gick då i motsatt riktning (Hindås-Skatås). Vid målet träffade jag ultralegenden Rune Larsson som berättade att han sprungit den 1970.
