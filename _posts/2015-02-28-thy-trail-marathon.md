@@ -1,6 +1,6 @@
 ---
 layout: post
-title: ""
+title: "Thy trail marathon 2015"
 published: true
 ---
 
