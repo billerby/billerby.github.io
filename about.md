@@ -1,15 +1,11 @@
 ---
 layout: page
-title: About
+title: Om mig
 permalink: /about/
 ---
 
-Some information about you!
+Här samlar jag mina tävlingsberättelser som jag har för vana skriva efter genomförda lopp. 
 
-### More Information
+### Mer information
 
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+I juli 2014 skall jag genomföra mitt första 100 mileslopp. Gax 100 miles som går längs österlenleden i Skåne. Tidigare längsta distans är 90 km (Ultravasan).
