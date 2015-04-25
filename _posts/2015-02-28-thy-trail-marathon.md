@@ -1,5 +1,7 @@
 ---
-published: false
+layout: post
+title: ""
+published: true
 ---
 
 ## Race Report Thy trail marathon 2015
