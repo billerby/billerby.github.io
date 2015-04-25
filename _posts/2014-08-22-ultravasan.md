@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Ultravasan 90"
-published: false
+published: true
 ---
 
 ![Screenshot](/images/ultravasan-upplopp.jpg)
