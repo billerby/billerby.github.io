@@ -6,6 +6,7 @@ published: true
 
 ## Sandsjöbacka trail ultra - en studie i geggamoja.
 
+![Screenshot](/images/sandsjobacka-malgang.jpg)
 I något slags kollektivt rus anmälde jag mig i höstas till ultradistansen av Sandsjöbacka trail marathon. 2013 sprang jag 44 kilometersdistansen på detta “indielopp” och minns att jag tyckte det var sjukt jobbigt. Nästan 83 km i till stora delar samma terräng kändes nästan som en utopi, en riktig mangling av kroppen. Dessutom var jag lätt oroad över uppladdningen som skulle bestå av två veckor på en västindisk ö utan möjlighet till annat än löpning på sandstränder. Att jag sedan drog på mig någon form av tarmbakterie under denna vistelse som sedan bråkat hela tiden sedan hemkomst gjorde ju inte saken bättre. När jag väl stod där ute vid Tjolöholm klockan kvart över sex på morgonen och inväntade startskottet hade jag inga större förhoppningar om att gå i mål. I ryggsäcken låg en prydligt förpackad återförslutningsbar plastpåse med våtservetter, som skulle rädda mig när nöden kom.
 En annan bild som poppade upp i minnet var slutscenen ur Lars von Triers Melancholia. Filmen är inspelad just på Tjolöholm och i slutscenen står huvudpersonerna och blickar ut över kungsbackafjorden när en jättekomet kommer mot dem och krockar - världens undergång. Nu snackar vi järtecken som heter duga. 
 
