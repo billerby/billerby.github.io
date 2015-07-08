@@ -4,9 +4,8 @@ title: "Thy trail marathon 2015"
 published: true
 ---
 
-## Race Report Thy trail marathon 2015
-
 ![Screenshot](/images/thy-beachrun.jpg)
+
 För andra året i rad anslöt jag mig till Lonesome-resan till Danmarks "barskaste" maraton. I fjol blev loppet lite av en chock då jag aldrig hade kunnat föreställa mig mängden vatten och djupet på detsamma. I år visste jag vad som väntade mig och jag kunde förbereda mig mentalt på ett helt annat sätt. Resorna till Thy har blivit en tradition. För två år sedan började det med att Peter Blomqvist och Steve Karlsson åkte dit och sprang. Peter hade lärt känna tävlingens eldsjäl Simon Grimstrup på ett löparläger och blivit inbjuden att delta. Simon som var speaker i år, talade sig varm om Lonesome Runners och ville gärna se oss där igen. Vi lyckades ju dessutom genom “Mariäe Frank” aka Maria Fräki knipa en silverplats i damklassen så nu är det viktigt att vi åker dit och försvarar detta :) 
 
 Thy är Danmarks äldsta nationalpark och ligger på västra nordjylland. Naturen består av ett vidsträckt klittlanskap och långa sandstränder som är ett paradis för surfare. Benämningen "Cold Hawaii" är väldigt passande. I år var vi åtta Lonesomes som gav oss av i hyrd minibuss från gbg med färjan över till Fredrikshavn. I Thisted vid Limfjorden där vi hyrt in oss i tre campingstugor väntade Håkan som anlänt med flyg från Stockholm tidigare under dagen. Håkan är en tuff kille, han tog en sig resdag  efter Thy för att ta sig till Sälen och köra Öppet Spår.
