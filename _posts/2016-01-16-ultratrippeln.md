@@ -9,7 +9,7 @@ published: true
 
 ##Racerapport Sandsjöbacka Ultratrippel
 
-På den lilla pizzerian med igenimmade rutor står det ett 30-tal löpare ihoppackade som sillar. Antalet klippningar av merinoullsbestyckade får som krävts för att utrusta denna skara löpare med långkalsoner, underställströjor, strumpor, mössor och vantar är förmodligen tresiffrigt - vad vet jag. Det är iskallt ute, en bit under 10 minusgrader och 25 minuter till start av detta första lopp av fem totalt som arrangeras i det som kallas Sandsjöbackatrail. Själv skall jag springa ultratrippeln, dvs inleda med prologen denna fredagskväll med 26 km i mörker följt av 44 km på lördagen och slutligen ta mig hela 82 km på söndagen. 
+På den lilla pizzerian med igenimmade rutor står det ett 30-tal löpare ihoppackade som sillar. Antalet klippningar av merinoullsbestyckade får som krävts för att utrusta denna skara löpare med långkalsonger, underställströjor, strumpor, mössor och vantar är förmodligen tresiffrigt - vad vet jag. Det är iskallt ute, en bit under 10 minusgrader och 25 minuter till start av detta första lopp av fem totalt som arrangeras i det som kallas Sandsjöbackatrail. Själv skall jag springa ultratrippeln, dvs inleda med prologen denna fredagskväll med 26 km i mörker följt av 44 km på lördagen och slutligen ta mig hela 82 km på söndagen. 
 
 Det råder uppsluppen stämning på platsen, vi har utrustats med GPS-spårsändare som skall rapportera vår position och visa upp den i webbläsare och mobilappar. Hur hamnade jag egentligen här? Låt oss gå tillbaka några månader, till den fjärde och femte juli 2015. 
 
