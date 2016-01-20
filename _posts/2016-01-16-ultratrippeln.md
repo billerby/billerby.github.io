@@ -5,6 +5,7 @@ published: true
 ---
 
 ![Screenshot](/images/ultratrippel-andreas.jpg)
+*Andreas till vänster och jag till höger. Foto: Einar Kjartansson*
 
 ##Racerapport Sandsjöbacka Ultratrippel
 
