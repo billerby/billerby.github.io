@@ -31,6 +31,8 @@ Trippeln inleds med den kortaste etappen som är en reflexbana som löps med pan
 Som vanligt blev det ett väldigt rusande i starten, jag höll igen och försökte hitta ett lämpligt tempo. Efter ett tag föll jag in i något som kändes behagligt. Några kilometer in i skogen började jag plötsligt plocka placeringar utan att ha gjort någon direkt tempohöjning. Förmodligen berodde det på att jag tränat mycket backlöpning det senaste och de flesta placeringarna plockade jag i just motlut. Det händer något i mig när jag börjar plocka placeringar och här krävdes verkligen pannben för att hålla igen, vissheten om att det en sådan ansträngning skulle ligga mig till last de efterföljande dagarna var fortfarande stark. Framme vid depån i Sisjön drack jag några muggar sportdryck och två bitar kladdkaka. Fem minuter senare började magen strula. Den hade känts lite orolig redan tidigare men nu blev det lite småjobbigt. Efter depån i Sisjön sprang jag ensam en bit. I den förrädiska Mölndalsravinen tyckte jag det var dags att dricka, men då var vätskan såklart djupfryst vid det laget då jag hade glömt att blåsa tillbaka den från slangen. I slutet av ravinen började jag komma ikapp löpare igen. En härlig känsla. Avslutningen ner genom arboretet i botaniska var fullständigt livsfarlig för dem som sprang utan ståldubb. Rena rodelbanan. Sprang i mål på 2.18 och en tiondeplats totalt och en femteplacering bland tripplarna.
 
 ###Icebug winter run 45 km
+![Screenshot](/images/ultratrippel-sandsjon.jpg)
+*Bild från lördagens maratonlopp vid Sandsjön. Foto: Einar Kjartansson*
 
 Sov katastrofalt dåligt och magen var fortfarande i olag, tog två immodium före sänggåendet för att försöka dämpa den lite. Gick upp 04.45 då jag ändå inte hade ro att sova mer. Tejpning av vänsterfoten gör jag alltid när det är teknisk terräng efter en svår stukning i våras. Packade det sista och lyckades få i mig en äggröra utan att magen klagade alltför mycket. Mot Kungsbacka!
 
@@ -67,12 +69,9 @@ Fick min belt-buckle och min soppa med bröd och gick in och unnade mig en plåg
 
 När det var dags för prisutdelning fick jag som bronsmedaljör i Ultratrippeln en start i valfri distans 2017, kändes inte jättemotiverande just där och då, men nu ser jag fram emot trippeln igen 2017.
 
-Det har nu gått tre dygn sedan målgång och kroppen känns bra, jag är väldigt trött och har stort sömnbehov. Hungern är helt otrolig, äter buffé till lunch så jag kan fylla på maximalt, vräker i mig chips och glass på kvällarna efter en rejäl middag. 
+Det har nu gått fem dygn sedan målgång och kroppen känns bra, jag är väldigt trött och har stort sömnbehov. Hungern är helt otrolig, äter buffé till lunch så jag kan fylla på maximalt, vräker i mig chips och glass på kvällarna efter en rejäl middag. 
 
 Om sex veckor är det Transgrancanaria, det är knappt så jag orkar vänta :)
-
-![Screenshot](/images/ultratrippel-sandsjon.jpg)
-*Bild från lördagens maratonlopp vid Sandsjön. Foto: Einar Kjartansson*
 
 ![Screenshot](/images/ultratrippel-i-mal.jpg)
 *Efter målgång sista dagen, något glansig blick.... Foto: Fredrik Uddgren*
