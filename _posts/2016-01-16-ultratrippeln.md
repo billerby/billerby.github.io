@@ -60,7 +60,8 @@ Att för tredje gången på lika många dagar ta sig upp till toppen av Ängård
 Vilken befrielse att passera mållinjen, att slippa ta sig igenom Mölndalsravinen och det stökiga partiet mellan Årekärr och Sisjön imorgon igen. Att få sova, vila, äta.
 
 ![Screenshot](/images/FB_IMG_1453047943389.jpg)
-*Precis passerat målgången, vrålar av befrielse :) Foto: Fredrik Uddgren*
+
+*Precis passerat mållinjen. Foto: Fredrik Uddgren*
 
 Fick min belt-buckle och min soppa med bröd och gick in och unnade mig en plågsam dubbelsession massage.
 
