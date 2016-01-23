@@ -9,7 +9,7 @@ published: true
 
 ##Racerapport Sandsjöbacka Ultratrippel
 
-På den lilla pizzerian med igenimmade rutor står det ett 30-tal löpare och (på ren göteborgska) "knôr". Det har krävts många klippningar av merinoullsfår för att utrusta denna skara löpare med långkalsonger, underställströjor, strumpor, mössor och vantar. Det är iskallt ute, en bit under 10 minusgrader och det är 25 minuter till start av detta första lopp av fem totalt som ingår i arrangemanget Sandsjöbackatrail. Själv skall jag genomföra ultratrippeln, dvs inleda med prologen denna fredagskväll om 26 km i mörker följt av 44 km på lördagen och slutligen ta mig hela 82 km på söndagen. 
+På den lilla pizzerian med igenimmade rutor står det ett 30-tal löpare och (på ren göteborgska) "knôr". Det har krävts många klippningar av merinoullsfår för att utrusta denna skara löpare med långkalsonger, underställströjor, strumpor, mössor och vantar. Det är iskallt ute, en bit under 10 minusgrader och det är 25 minuter till start av detta första lopp av fem totalt som ingår i arrangemanget Sandsjöbackatrail. Själv skall jag genomföra ultratrippeln, dvs inleda med prologen denna fredagskväll om 26 km i mörker följt av 44 km på lördagen och slutligen ta mig hela 82 km från Tjolöholms slott till Slottskogsvallen på snöbemängda stigar under den avslutande etappen på söndagen. 
 
 Det råder uppsluppen stämning på platsen, vi har utrustats med GPS-spårsändare som skall rapportera vår position för att kunna plotta den i webbläsare och mobilappar. Hur hamnade jag egentligen här? Låt oss gå tillbaka några månader, till den fjärde och femte juli 2015. 
 
