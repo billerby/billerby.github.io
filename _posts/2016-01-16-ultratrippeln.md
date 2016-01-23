@@ -4,8 +4,8 @@ title: "Sandsjöbacka ultratrippel 2016"
 published: true
 ---
 
-![Screenshot](/images/ultratrippel-andreas.jpg)
-*Andreas till vänster och jag till höger. Foto: Einar Kjartansson*
+![Screenshot](/images/drumlinen.jpg)
+*På Sandsjöbackadrumlinen. Foto: Christer Hedberg*
 
 ##Racerapport Sandsjöbacka Ultratrippel
 
@@ -43,8 +43,9 @@ Parkerade vid precis vid starten, In på gymmet och hämta ut gps-tracker och se
 Fick skjuts ner till Kungsbacka för att hämta bilen och nu handlade resten av dagen om att fylla på energi och vila. Tog en hamburgare i bilen hem, följt av en pizza lite senare. Tidigt i säng, men vad hjälpte det. Sov som en kratta för tredje natten i rad.
 
 ###Sandsjöbacka 50 miles
-![Screenshot](/images/drumlinen.jpg)
-*På Sandsjöbackadrumlinen. Foto: Christer Hedberg*
+
+![Screenshot](/images/ultratrippel-andreas.jpg)
+*Andreas till vänster och jag till höger. Foto: Einar Kjartansson*
 
 Uppstigning 03.45 då jag ändå var vaken. Hade förberett en lapp åt mig själv på köksbordet med viktiga kom-ihåg-punkter:
  -Tejpa fot
