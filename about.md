@@ -8,4 +8,4 @@ Här samlar jag mina tävlingsberättelser som jag har för vana skriva efter ge
 
 ### Mer information
 
-I juli 2014 skall jag genomföra mitt första 100 mileslopp. Gax 100 miles som går längs österlenleden i Skåne. Tidigare längsta distans är 90 km (Ultravasan).
+Har sprungit Ultra i snart två år, tränar just nu för Transgrancanaria 125 km i mars 2016 och CCC® (Courmayeur Champex Chamonix) - UTMB® i augusti. Min träning loggar jag på [https://www.strava.com/athletes/1611434/] Strava.

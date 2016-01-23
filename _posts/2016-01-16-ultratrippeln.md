@@ -78,6 +78,3 @@ När det var dags för prisutdelning fick jag som bronsmedaljör i Ultratrippeln
 Det har nu gått fem dygn sedan målgång och kroppen känns bra, jag är väldigt trött och har stort sömnbehov. Hungern är helt otrolig, äter buffé till lunch så jag kan fylla på maximalt, vräker i mig chips och glass på kvällarna efter en rejäl middag. 
 
 Om sex veckor är det Transgrancanaria, det är knappt så jag orkar vänta :)
-
-![Screenshot](/images/ultratrippel-i-mal.jpg)
-*Efter målgång sista dagen, något glansig blick.... Foto: Fredrik Uddgren*
