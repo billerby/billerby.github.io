@@ -21,7 +21,13 @@ Jag bestämde mig för att åka ner en knapp vecka före start, för att kunna r
 
 Ytterligare några personer jag lärt känna genom löpningen anmälde sig så småningom och Andreas Pettersson valde dessutom att dela boende med mig under tiden. Kul!
 
+![Screenshot](/images/tejeda-terass.jpg)
+*Vy från min och Andreas terass i Tejeda*
+
 Lördagen den 27 februari flög jag så ner till Gran Canaria och kvitterade ut en hyrbil. Lyckades till slut navigera upp längs serpentinvägarna till Tejeda och checka in i min lägenhet. Redan klockan sju nästkommande morgon hade jag bestämt träff med Niclas, Mats och Carsten (en dansk kamrat till Niclas) i Puerto de las Nieves där starten för loppet går. Vi skulle rekognosera de första 34 kilometrarna av banan. För att hinna fick jag gå upp klockan 04.50 blanda tailwind och klä mig, och sedan i kompakt dimma, storm och regn köra i 90 minuter längs livsfarliga vägar ner till havet på öns nordsida. Utomhus var det fem plusgrader. Väl framme var det till en början uppehåll och 13 plusgrader, skönt tänkte jag och lämnade handskarna i bilen. Ett dåligt beslut visade det sig. Vi fick riktigt skitväder hela dagen och var rejält nedkylda när vi hoppade in i en taxi i byn Artenara efter våra 34 km och 2800 höjdmeters springande. Två dagar senare provsprang vi också den näst sista sträckan mellan Ayagaures och Parque Sur. Två dagar före start tog jag dessutom en promenad från Tejeda upp till Cruz de Tejeda längs banan. Skönt att ha sett en del av vad som väntar i förväg.
+
+![Screenshot](/images/transgrancanaria-rekog.jpg)
+*Vy från stigen mellan Cruz de Tejeda och Tejeda*
 
 Klockan 12 på torsdagen hämtade vi ut nummerlapp och racekit på expon samt blev lite starstrucked av att se lite kändisar inom ultravärlden. Vi lämnade in dropbags och åt sedan en lunch följt av några timmars strandhäng i Meloneras tillsammans med Christian som valt en annan form av uppladdning än oss. Han körde den “Stig-Helmerska” varianten med “Peppes Bodega” och “svenskt kaffe på hotellet”. Han smälte dock inte in något vidare vid poolbaren :)
 
