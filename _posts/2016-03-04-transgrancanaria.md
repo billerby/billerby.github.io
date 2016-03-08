@@ -36,7 +36,8 @@ Klockan 12 på torsdagen hämtade vi ut nummerlapp och racekit på expon samt bl
 
 En och en halvtimmes serpentinvägar upp till vårt tillhåll i bergen senare och vi valde att fylla på med en god pizza denna sista kväll före vårt livs utmaning.
 
-##Race day
+Race day
+--------
 ![Screenshot](/images/transgrancanaria-start.jpg)
 *Mats, Undertecknad och Andreas strax före start i Agaete.*
 
