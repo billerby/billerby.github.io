@@ -1,10 +1,11 @@
 ---
 layout: post
-title: "Transgrancanaria 125 km - när låren skriker av smärta och det är 2500 meters nedstigning kvar till målet"
+title: "Transgrancanaria 125 km"
 published: true
 ---
 
 ![Screenshot](/images/transgrancanaria-omslag.jpg)
+*På väg upp mot Tamabada söndagen före loppet.*
 
 Klockan är runt sex på kvällen och efter 19 timmars “löpning” stapplar jag in i depån i Ayagaures med 17 km kvar till målet. Tankarna är mörka. Jag hatar det här. Jag förbannar att jag redan anmält mig till CCC, ett lika kuperat lopp i sommar. Låren skriker av smärta. Jag är låg på energi. Jag börjar trycka i mig ost och Coca Cola och blir omgående brutalt illamående. Sedan börjar allt snurra, jag känner att jag är på väg att svimma och greppar tag i en funktionär som lägger mig på en brits. I en timme ligger jag där och blir matad med kanariska apelsiner, översötat te, bröd, ost och Coca Cola. Att bryta är inget alternativ med 17 förhållandevis “enkla” km till mål. Jag tänker promenera till målet om jag måste, för i mål ska jag till varje pris.
 
