@@ -7,7 +7,7 @@ published: true
 ![Screenshot](/images/fmr-start.jpg)
 *Strax före start i Haväng. Foto: Marie Karlander*
 
-2014 begick jag min debut på 50-milesdistansen med detta underbara lopp som går på natten mellan Haväng och Ystad den lördagen i juli som är närmast fullmåne. Jag och Fredrik hade en mycket blöt natt (det regnade från start till mål). I fjol följde jag upp detta med att springa The Gax 100-miles som går som samtidigt med den lilla skillnaden att starten går åtta mil och tolv timmar tidigare i Ystad istället för i Haväng, där alltså starten för Full Moon Race är belägen. Då jag i år i slutet av augusti skall springa CCC i Chamonix var The Gax inget alternativ då jag tycker att mer återhämtning än en månad behövs mellan två så krävande lopp. Istället kom jag fram till att ett återupplevt FMR skulle kunna vara en fin förberedelse inför vad som väntar nere i Frankrike. Löpningen genom natten på Österlen i fullmånens ljus är verkligen magisk. 
+2014 debuterade jag i 50-milessammanhang i och med detta underbara lopp som går på natten mellan Haväng och Ystad den lördagen i juli som är närmast fullmåne. Jag och Fredrik hade en mycket blöt natt (det regnade från start till mål). I fjol följde jag upp detta med att springa The Gax 100-miles som går som samtidigt med den lilla skillnaden att starten går åtta mil och tolv timmar tidigare i Ystad istället för i Haväng, där alltså starten för Full Moon Race är belägen. Då jag i år i slutet av augusti skall springa CCC i Chamonix var The Gax inget alternativ då jag tycker att mer återhämtning än en månad behövs mellan två så krävande lopp. Istället kom jag fram till att ett återupplevt FMR skulle kunna vara en fin förberedelse inför vad som väntar nere i Frankrike. Löpningen genom natten på Österlen i fullmånens ljus är verkligen magisk. 
 
 Vi anlände på fredagskvällen till Kåseberga, där min bror har ett hus. Lördagen ägnades åt lite Österlen-turism och en middagslur innan det var dags att åka till starten i Haväng. 
 
@@ -33,6 +33,8 @@ Nyfiket väntar jag in min närmsta utmanare som inte dyker upp förrän efter 1
 Slutligen, som den geografinörd jag är tror jag mig att efter tre år ha memorerat de Österlenska orterna man passerar i korrket ordning. Haväng - Vitemölla - Kivik - Knäbäckshusen - Vik - Baskemölla - Simrishamn - Brantevik (med Eva Bergs fantastiska spontana chips- och cocacola-depå) - Skillinge - Örnahusen - Sandhammaren - Löderups strandbad - Kåseberga - Hammar - Nybrostrand - Ystad.
 
 Rekommenderar alla att springa detta lopp, det är fantastiskt.
+
+[Loppet på strava](https://www.strava.com/activities/651577271)
 
 
 
